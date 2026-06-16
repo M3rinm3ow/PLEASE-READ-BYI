@@ -10,7 +10,7 @@
 
 °{I have a few friends I perfer to be with...so don't be offended if I move away}°
 
-`◇.if I'm on dni u can still int! but I'm normal in a bad mood so I might respond dry.◇`
+`◇.if I'm on dni u can still int! but I'm normally in a bad mood when on dni so I might respond dry..dont take it personal.◇`
 
 DNI EVER if u ship 
 
