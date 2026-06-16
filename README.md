@@ -14,6 +14,6 @@
 
 DNI EVER if u ship 
 
-dottobina,kaeluc,dottoscara,dottohen and anything problematic...i perfer you people not interact...I won't bother you if u don't come and bother me :D
+dottobina,arlefuri,kaeluc,dottoscara,dottohen and anything problematic...i perfer you people not interact...I won't bother you if u don't come and bother me :D
 
 sorry for blabbing I'm just sick of having ships forced onto me heh
